@@ -1,0 +1,2 @@
+# IdkNes
+Idk some roms
